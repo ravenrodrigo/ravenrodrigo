@@ -1,3 +1,3 @@
 # Hi, I'm Raven 👋 
 
-- 🤝 Connect with me on [<u>LinkedIn</u>](https://www.linkedin.com/in/ravenrodrigo/).
+- 🤝 You can connect with me on [<u>LinkedIn</u>](https://www.linkedin.com/in/ravenrodrigo/).
